@@ -13,8 +13,9 @@ Tenho uma personalidade curiosa e gosto de explorar diferentes assuntos. Nem tud
 ## 💭 Coisas que gosto
 
 * 🎧 Música
+* 🏀 Basquete
 * 🎬 Filmes e séries
-* 🎮 Jogos
+* 🎮 Jogos 
 * 📖 Histórias e conteúdos que despertam a imaginação
 * 🎨 Criatividade
 * 🌎 Conhecer coisas e lugares novos
